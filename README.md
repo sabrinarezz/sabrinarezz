@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Sabrina
 - 👀 I’m interested in EVERYTHING
 - 🌱 I’m currently learning QUIRKSSSSSSS
-- 📫 How to reach me ........ YOU JUST CAN'T..... Hahaha XD
+- 📫 I love Solitude.
 
 <!---
 sabrinarezz/sabrinarezz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
